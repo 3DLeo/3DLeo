@@ -1,8 +1,12 @@
 - 👋 Hi, I’m @3DLeo
 - 👀 I’m interested in discovering, learning and earning of whole crypto ecosystem
 - 🌱 I’m currently learning creating-testing nodes and test-devnets. Im very curious and exciting on that
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m also Accelerated NFT creator on Omnisea also have collection on Davinci and objkt.com aswell.
+- 📫 How to reach me 
+Twitter: www.twitter.com/3dleo_
+Discord: 3dleo#0770
+Omnisea NFT Collection: https://omnisea.org/drop?id=9166611333214
+
 
 <!---
 3DLeo/3DLeo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
