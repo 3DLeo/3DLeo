@@ -5,7 +5,7 @@
 - 📫 How to reach me 
 - Twitter: www.twitter.com/3dleo_
 - Discord: 3dleo#0770
-- Omnisea NFT Collection: https://omnisea.org/drop?id=9166611333214
+- Omnisea NFT Collection: https://link3.to/cyberleo
 
 
 <!---
