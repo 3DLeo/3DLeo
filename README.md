@@ -4,7 +4,7 @@
 - 💞️ I’m also Accelerated NFT creator on Omnisea also have collection on Davinci and objkt.com aswell.
 - 📫 How to reach me 
 - Twitter: www.twitter.com/3dleo_
-- Discord: 3dleo#0770
+- Discord: 3dleo
 - Omnisea NFT Collection: https://link3.to/cyberleo
 
 
